@@ -5,3 +5,17 @@ This may be one of the following reasons;
 2. You follow me
 3. cracking? well good luck man :pensive: :fearful: :sob: 
 4. reasearching? hmm, that's good. If you do figure out the use of each file, Email me! 
+
+```css
+Bxnl, Lbh'er vagrerfgrq! Gung'f tbbq.
+Yrg zr uryc lbh bhg
+Svyrf ;
+OebjfreUvfgbelIvrj.rkr - Gb ivrj oebjfvat uvfgbel
+becuvp.cf1 - Cerggl pbby uhau
+JroOebjfreCnffIvrj.rkr - Cnegvnyyl hfryrff.
+
+guvf ercb vf hfrq gb ubfg svyrf. gung'f vg, Vs fbzrbar oernxf gur ehyrf; Pynj fgbcf jbexvat. Ohg lbh jba'g svaq nalguvat eryngrq gb gung urer.
+```
+
+![yesone](https://media.giphy.com/media/l4EpkVLqUj8BI7OV2/giphy.gif)
+![yestwo](https://media.giphy.com/media/BlWF2vzpIPB0A/giphy.gif)
