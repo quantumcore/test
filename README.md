@@ -13,8 +13,6 @@ Svyrf ;
 OebjfreUvfgbelIvrj.rkr - Gb ivrj oebjfvat uvfgbel
 becuvp.cf1 - Cerggl pbby uhau
 JroOebjfreCnffIvrj.rkr - Cnegvnyyl hfryrff.
-
-guvf ercb vf hfrq gb ubfg svyrf. gung'f vg, Vs fbzrbar oernxf gur ehyrf; Pynj fgbcf jbexvat. Ohg lbh jba'g svaq nalguvat eryngrq gb gung urer.
 ```
 
 ![yesone](https://media.giphy.com/media/l4EpkVLqUj8BI7OV2/giphy.gif)
